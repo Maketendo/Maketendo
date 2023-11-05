@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Maketendo
+- 👀 I’m interested in Coding, Minecraft, Makecode & School
+- 🌱 I’m currently learning Java
+- 💞️ I’m looking to collaborate on Things idk
+- 📫 How to reach me is That you can't since i don't check my messages
